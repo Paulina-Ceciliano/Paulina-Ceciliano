@@ -6,5 +6,5 @@
 - 👯 I’m looking to collaborate on frontend and backend projects
 - 🤔 I’m looking for help with my social service at school
 - 💬 Ask me about whatever you want!
-- 📫 How to reach me: email: paulinaceciliano@outlook.com instagram: https://www.instagram.com/jyxpxu/
+- 📫 How to reach me: email: paulinaceciliano@gmail.com instagram: https://www.instagram.com/jyxpxu/
 - 😄 Pronouns: She/Her
